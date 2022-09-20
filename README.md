@@ -1,1 +1,1 @@
-https://Assem-ai.github.io/rssschool-cv/cv
+https://Assem-ai.github.io/rsschool-cv/cv
